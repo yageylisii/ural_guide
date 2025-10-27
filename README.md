@@ -1,1 +1,1 @@
-http://t.me/touristEKB_bot
+https://t.me/touristEKB_bot
