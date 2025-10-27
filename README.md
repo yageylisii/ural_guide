@@ -1,1 +1,1 @@
-Это крч аудиогид по уралу в ТГ
+http://t.me/touristEKB_bot
